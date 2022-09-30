@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Helena Rodrigues (@HelaRodriguez)
+- 👀 I'm strangely interested in anything and everything, but at the moment my main focus is on programming.
+- 🌱 I'm starting my studies in programming through the online course program called "Curso em Video" and the project called "Programmers of Tomorrow"
+- 📫 How to reach me? Through my e-mail: hellasrodrigueez@gmail.com. Feel free to contact me at any time.
